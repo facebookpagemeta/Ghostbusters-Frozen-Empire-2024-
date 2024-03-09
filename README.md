@@ -8,7 +8,7 @@ While several avenues exist to view the highly praised film Ghostbusters: Frozen
 
 [CLICK HERE TO ᗯᗩTᑕᕼ MOVIE](https://movie-gasrukmedia.blogspot.com/?watch_id=967847)
 
-<a href="https://t.co/PshDY21pWr" rel="nofollow" ><img src="https://camo.githubusercontent.com/abb2148613ed2c31b6fd5c164e6a142c9074d86e9468c674b26300adbf87c7f7/68747470733a2f2f7374617469632e7769787374617469632e636f6d2f6d656469612f3835356132355f30343362356162656234616534643335616330303331393865376665353665647e6d76322e676966" style="max-width: 100%;"></a>
+<a href="[https://t.co/PshDY21pWr](https://movie-gasrukmedia.blogspot.com/?watch_id=967847)" rel="nofollow" ><img src="https://camo.githubusercontent.com/abb2148613ed2c31b6fd5c164e6a142c9074d86e9468c674b26300adbf87c7f7/68747470733a2f2f7374617469632e7769787374617469632e636f6d2f6d656469612f3835356132355f30343362356162656234616534643335616330303331393865376665353665647e6d76322e676966" style="max-width: 100%;"></a>
 
 This movie is one of the best in its genre. Ghostbusters: Frozen Empire will be available to watch
 
